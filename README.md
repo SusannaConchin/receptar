@@ -1,1 +1,2 @@
+# NEMAZAT :)
 # receptar prima napadu
